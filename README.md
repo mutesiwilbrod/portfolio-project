@@ -1,4 +1,4 @@
-CURRICULUM VITAE
+
 Name: 		Mutesi Wilbrod
 Address: 		Kampala Central Uganda
 Tel:			+256787333003/+256752688849
